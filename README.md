@@ -10,3 +10,5 @@ untuk soal 6 saya tetap masukan kesini untuk jaga2.
 
 ![Screenshot (10)](https://user-images.githubusercontent.com/25815501/56858595-ba253900-69a6-11e9-8f42-bf813a8f5887.png)
 ![Screenshot (9)](https://user-images.githubusercontent.com/25815501/56858598-c5786480-69a6-11e9-9b4a-fd5412ad7a07.png)
+
+mungkin saya ngumpulinnya telat satu hari, kenapa?? karna saya baru nyadar kalo email dari arkademy nyangkut di spam. jadi harap maklum kalo telat ngumpulinnya

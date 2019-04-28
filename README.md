@@ -27,3 +27,6 @@ Jangan lupa buat import file sqlnya
 
 
 mungkin saya ngumpulinnya telat satu hari, kenapa?? karna saya baru nyadar kalo email dari arkademy nyangkut di spam. jadi harap maklum kalo telat ngumpulinnya
+
+
+IG: @ndanzzzz
